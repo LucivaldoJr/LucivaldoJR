@@ -1,5 +1,5 @@
 ## Hello, I am Junior
-- [Linkedin](linkedin.com/in/lucivaldo-junior-211b7423a)<br />
+- [Linkedin](https://www.linkedin.com/in/lucivaldo-junior-211b7423a)<br />
 
 ## About
 
